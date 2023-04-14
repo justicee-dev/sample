@@ -1,2 +1,2 @@
 # sample
-i love eating ugali and nyama choma
+i love eating ugali and nyama choma!!
